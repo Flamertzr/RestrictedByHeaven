@@ -1,0 +1,1 @@
+Restricted By Heaven is a game I was working on in a high school capstone course that unfortunately lost all my progress in. I hope to revisit it in the future. The game is about a character named Reito which is born into a world with magic and spirits however he has none of those. Basically if toji from jjk was the MC.
